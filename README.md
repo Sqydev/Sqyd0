@@ -1,3 +1,3 @@
-- I’m interested in making mods and some retarded shit
+- I’m interested in making mods , small projects, and some retarded shit
 - I’m currently learning c#, java
 - How to reach me _sqyd on discord
